@@ -1,4 +1,4 @@
-
+Avast Security for macOS vip Utility: encryption & vulnerability-scanner offers the most advanced Avast Security for macOS utility, with encryption and vulnerability-scanner.
 
 
 
